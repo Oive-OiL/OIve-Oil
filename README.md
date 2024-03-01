@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... Through my github
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I like the satisfaction of biting into apples
+- ⚡ Fun fact: ... I pour milk before the cereal
 -->
